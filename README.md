@@ -1,0 +1,1 @@
+Examensarbetet: https://docs.google.com/document/d/1K2D8YqNDLfJhdLLd1Xzr2ukO4MuqYgNk8HjEISsImp4/edit
